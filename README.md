@@ -2,7 +2,7 @@
 
 08037613176 
 
-braskyconnect7gmail.com 
+braskyconnect@7gmail.com 
 
  ## Professional Summary 
 
